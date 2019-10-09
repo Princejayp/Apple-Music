@@ -1,4 +1,4 @@
-# Je-an-Pierre
+# Yung Bigga Entertainment
 Owner Je'an-Pierre aka Prince Jay P.
 Songwriter
 Composer
